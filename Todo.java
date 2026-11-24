@@ -1,1 +1,1 @@
-buy milk
+buy eggs
